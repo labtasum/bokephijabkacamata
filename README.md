@@ -1,2 +1,1 @@
-# bokephijabkacamata
-bokephijabkacamata
+# [bokephijabkacamata](https://bokephijabkacamata.pages.dev)
